@@ -1,2 +1,2 @@
-# Takumi1209_Master-sResearch
+# Takumi1209_MastersResearch
 master's research
